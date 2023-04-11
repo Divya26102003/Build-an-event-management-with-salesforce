@@ -8,4 +8,4 @@ Team member 1 - https://trailblazer.me/id/ddharshinip1
 
 Team member 2 - https://trailblazer.me/id/vaish21
 
-Team member 3 - 
+Team member 3 - https://trailblazer.me/id/livij1
